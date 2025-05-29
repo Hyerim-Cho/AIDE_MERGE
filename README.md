@@ -3,3 +3,5 @@ I'm interested in UXUI, AI, and Bigdata
 
 
 If you need more information, don't hesitate to contact me. hhrrrim@gmail.com
+
+취미 추가
